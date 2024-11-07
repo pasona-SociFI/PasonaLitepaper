@@ -29,7 +29,7 @@ The advent of social media has transformed how public figures connect with their
 
 There's a rising demand for platforms that bridge this gap. A sentiment echoed in social media:
 
-*"I wish there was a way for fans to invest directly in their favorite artists and share in their success."*
+*"I wish I can buy stocks in people. Like some people are so young and so cracked I just need to invest 1k in them and my life's set."*
 
 ---
 
